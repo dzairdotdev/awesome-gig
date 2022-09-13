@@ -8,6 +8,12 @@ A liste of awesome places and advices to start your freelancing journey
 - https://www.upwork.com/
 - https://khamsat.com/
 
+## Actual prices in Algeria
+
+Site vitrine à partir de 10 millions
+
+Trois pages 25 millions
+
 ## Advices on how to start
 
 TODO
