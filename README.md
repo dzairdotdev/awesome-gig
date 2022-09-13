@@ -14,6 +14,8 @@ Site vitrine à partir de 10 millions
 
 Trois pages 25 millions
 
+30% d'avance
+
 Où contacter des devs DZ ? https://www.facebook.com/groups/dzdevs
 
 ## Advices on how to start
