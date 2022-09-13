@@ -14,6 +14,8 @@ Site vitrine à partir de 10 millions
 
 Trois pages 25 millions
 
+Ou contacter des devs ? https://www.facebook.com/groups/dzdevs
+
 ## Advices on how to start
 
 TODO
